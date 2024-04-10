@@ -7,3 +7,4 @@
 6. The most successful people are able to find fruit in any harvest and in any season.
 7. The universe never explains why. God rarely does. Learn to move forward anyway.
 8. Never disect your career when exhausted. Never disect your life while you're sick. Sleep on it, then examine things in better light.
+9. "Real artists ship." Learn to finish your work and share it with the world.
