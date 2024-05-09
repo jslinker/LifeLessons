@@ -8,3 +8,4 @@
 7. The universe never explains why. God rarely does. Learn to move forward anyway.
 8. Never disect your career when exhausted. Never disect your life while you're sick. Sleep on it, then examine things in better light.
 9. "Real artists ship." Learn to finish your work and share it with the world.
+10. There are only 2 causes for disagreement: difference of priorities and difference of risk tolerance. everything else is miscommunication. 
